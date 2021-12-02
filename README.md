@@ -8,3 +8,5 @@
 Rangssan/Rangssan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+https://www.paypal.me/Rangsan11
+Acout number Thailand TRANSFER with wallet (66+)991213434)
